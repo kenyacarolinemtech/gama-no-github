@@ -1,0 +1,1 @@
+Estou gostando muito do curso, da didática aplicada e dos conteúdos diversificados que envolvem hard skils e soft skills!
